@@ -4,7 +4,7 @@
 
 *Contact info*
 
-* **Phone:** +375 29 749-81-78
+* **Phone:** +375 (29) 749-81-78
 * **E-mail:** arseniyborsukov@gmail.com
 * **RS-school:** Arseniy Borsukov (@arzingy)
 * [Telegram](https://t.me/iambabypatrick)
